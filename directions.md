@@ -6,9 +6,9 @@ feature_image: "/assets/feature_image.jpg"
 
 We meet at:
 
-**Denny\’s Restaurant ,333 S. Abbott, Milpitas,CA95035**
+Dennys Restaurant ,333 S. Abbott, Milpitas,CA95035
 
-**Phone: (408) 262-9090**
+Phone: (408) 262-9090
 
 Its located just off Calaveras, between 680 and 880 (although it is much closer to 880).
 
