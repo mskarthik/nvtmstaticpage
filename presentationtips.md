@@ -4,7 +4,6 @@ feature_image: "/assets/feature_image.jpg"
 categories: sidenavtype
 aside: true
 ---
-"<meta http-equiv='Content-Type' content='text/html; charset=utf-8' />"
 Here are some tips and tricks to help out new and seasoned members as they prepare for various speeches.
 
 * Using a Computer and Projector
