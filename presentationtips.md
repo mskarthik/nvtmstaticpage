@@ -1,6 +1,7 @@
 ---
 title: Presentation Tips
 feature_image: "/assets/feature_image.jpg"
+layout: post
 categories: sidenavtype
 aside: true
 ---
