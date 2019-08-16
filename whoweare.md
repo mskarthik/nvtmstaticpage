@@ -10,7 +10,7 @@ The focus of North Valley Toastmasters is the same as most clubs \– simply to 
 
 We currently have about 22-24 members with an average attendance of about 12-16. One of the members helped found the group back in 1965. Others are very new to the club.
 
-We span the gamut of profiles: very young to very wise, high level executive to low wage earners to unemployed, self employeed and “other”.
+We span the gamut of profiles: very young to very wise, high level executive to low wage earners to unemployed, self employeed and \“other\”.
 
 A number of our members have English as a second (or third, fourth, etc.) language. We are quite varied in so many ways that it really makes the meetings quite interesting.
 
