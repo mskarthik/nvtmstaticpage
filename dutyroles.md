@@ -274,5 +274,3 @@ Here are some tips and tricks to help out newer members prepare for various duti
 </li>
 <li>When you are done, you will return control of the meeting to the President who will announce the winners, bring up any club business, review next week&#8217;s duties, etc. Your job is done after you call up the joke master.</li>
 </ul>
-<p>Feel free to submit any additional Tips and Tricks of your own. Just send them to <a href="mailto:Webmaster@nvtm.org">the Webmaster</a>.</li>
-<li>The agenda template is available <a href="wp-content/uploads/2015/07/NVTM-agenda-template-1.docx.html">NVTM agenda template</a></li>
