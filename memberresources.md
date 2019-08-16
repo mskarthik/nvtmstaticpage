@@ -9,5 +9,4 @@ Information on this page is primarily for members.  If you are not a member of N
 
 If you want further information on becoming a member, please contact our VP of Membership
 
-Members, if you have not yet joined our members only email list, please do.  If you do not have a yahoo account, we strongly recommend that you create one.  You do not need to use Yahoo email, just create the account.  To subscribe to our email list, click here.  If you are not logged into Yahoo, then click on the “Sign In” link you will see.  This way, it will be easy for you to manage your settings.
-
+Members, if you have not yet joined our members only googlegroups email list, please do. If you need assistance, reach out to the Club officers.
