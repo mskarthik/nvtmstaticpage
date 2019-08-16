@@ -1,7 +1,6 @@
 ---
 title: Duty Roles
 feature_image: "/assets/dutyroles.png"
-layout: post
 categories: sidenavtype
 aside: true
 ---
