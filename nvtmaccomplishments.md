@@ -35,9 +35,7 @@ Here are just a few of the many accomplishments achieved by the club and members
 
 3. Jennifer Hao, Area F1 Governor 2012-13
 
-4. Mythili S. Prabhu, Area F3 Governor 2012-13,
-
-                       District 4 Club Ambassador Program Director 2013-14
+4. Mythili S. Prabhu, Area F3 Governor 2012-13
 
 5. Kelley Nielsen, Area Director, 2015-16
 
