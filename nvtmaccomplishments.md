@@ -73,15 +73,15 @@ Here are just a few of the many accomplishments achieved by the club and members
 
 ### Club Accomplishments (2003 onwards)
 
-1. President’s Distinguished Club (2004-05, 2010-11, 2011-12)
+1. President’s Distinguished Club (2003-05, 2007-08, 2010-11, 2011-12, 2017, 2019)
 
-2. Select Distinguished Club (2005-06, 2008-09, 2012-13)
+2. Select Distinguished Club (2005-06, 2008-09, 2012-13, 2018)
 
-3. Distinguished Club (2003-04, 2007-08)
-
-4. Presidents Distinguished in 2013-14 and 2014-15
+3. Presidents Distinguished in 2013-14 and 2014-15
 
 ### Denny Weisgerber Outstanding TM and Memorial Award:
+
+1. Mythili Prabhu, 2017-18
 
 Memorial Recipients:
 
